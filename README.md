@@ -6,8 +6,6 @@
 - [**Popular Search Queries**](#queries)
 - [**Access FAQ**](#faq)
 
-<meta name="google-site-verification" content="rZ_sndwtOjnhKZymZWpeULLltK0b6VkuYsFB_yPS8_s" />
-
 ---
 
 ## 🔄 **Official Stake.com Mirror Access**
